@@ -1,1 +1,0 @@
-# LGBTQ-Issues-Civics-Projects
